@@ -1,4 +1,4 @@
-# furrycovenant
+# Furry Covenant
 
 This agreement is between the group enacting this document and every member of the community.
 
