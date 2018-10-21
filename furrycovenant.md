@@ -10,13 +10,15 @@ Animal abuse:<br>
 (a)Promoting, advertising or engaging in any form of abuse to animals not limited to the following:<br>
 &nbsp;&nbsp;&nbsp;&nbsp;(i) neglect<br>
 &nbsp;&nbsp;&nbsp;&nbsp;(ii) torture<br>
-&nbsp;&nbsp;&nbsp;&nbsp;(iii) zoophilia<br>
 
 Zoophilia:<br>
 (a) Promoting, advertising or engaging in zoophilia in any manner regardless of severity.<br>
+&nbsp;&nbsp;&nbsp;&nbsp;(i) Exceptions are the following:<br>
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;- works of fiction or fantasty including but not limited to, art, stories and role-play.<br>
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;- engaging in fiction or fantasty including but not limited to, acting, cinema and role-play.<br>
 (b) Identifying as a zoophile by any means including but not limited to indicators or statements of the following:<br>
 &nbsp;&nbsp;&nbsp;&nbsp;(i) using the word "zoo" or "zoophile" in the profile in any manner.<br>
-&nbsp;&nbsp;&nbsp;&nbsp;(ii) using the Greek lowercase letter for Zeta, displayed as ζ, known to be used by zoophiles to recognize each other.<br>
+&nbsp;&nbsp;&nbsp;&nbsp;(ii) using the Greek lowercase letter for Zeta, displayed as ζ, known to be used by zoophiles to recognize each other.
 
 Any breach of this agreement will result in the removal from the community.
 
