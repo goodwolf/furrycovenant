@@ -2,7 +2,7 @@
 
 This agreement is between the group enacting this document and every member of the community.
 
-The furry fandom is a place where creativity, imagination and inspiration bring people together all over the world. We come together in order to build communities, engage in common activities and come together for every living creature in this wonderful world. Through our daily lives we admire, imitate and even copy other animals while engaging in our community. There are people in this world who work against our good nature, who are some of the most vile of individuals capable of the most heinous types of abuse. We need to stand together, we can not allow these degenerates to continue corrupting the community through their actions.
+The furry fandom is a place where creativity, imagination and inspiration bring people together all over the world. We come together in order to build communities, engage in common activities and for every living creature in this wonderful world. Through our daily lives we admire, imitate and even copy other animals while engaging in our community. There are people in this world who work against our good nature, who are some of the most vile of individuals capable of the most heinous types of abuse. We need to stand together, we can not allow these degenerates to continue corrupting the community through their actions.
 
 The following are prohibited in the community:
 
